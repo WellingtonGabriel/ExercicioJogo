@@ -1,1 +1,1 @@
-# https://bespoke-blini-8ed934.netlify.app/
+# https://jogo-yuuotosaka.netlify.app/
